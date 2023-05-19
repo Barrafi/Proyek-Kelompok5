@@ -13,7 +13,7 @@ Cut Nisa Shafira : 2208108010067
 - Kesan: di lab alpro menyenangkan,dan mudah mengerti,kakaknya menyenangkan dan asyik
 Chuaakksss
 
-Laura Masyitah
+Laura Masyitah : 2208108010087
 
 Halo Kakak/ Abang Asisten Lab Algoritma dan Pemrograman,
 
